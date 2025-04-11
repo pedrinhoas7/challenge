@@ -134,4 +134,3 @@ Fique à vontade para entrar em contato:
 - 📧 pedrinhoas7@gmail.com 
 
 Agradeço à equipe da **Softcom** pela oportunidade 🙌  
-```
